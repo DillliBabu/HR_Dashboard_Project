@@ -13,3 +13,7 @@
 
 
 
+
+
+
+<img width="1749" height="999" alt="HR _ Details" src="https://github.com/user-attachments/assets/e1aa89a1-1294-4838-b25b-6a6f14c79147" />
